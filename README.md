@@ -8,7 +8,8 @@ Meu nome é Rayssa Noemi
   
   ### Você entrar em contato comigo
   @r.noeemii
-  
+
+  ![](https://media1.tenor.com/m/QdzhbBK6W08AAAAd/shrek-sigh.gif)
 
   
   
